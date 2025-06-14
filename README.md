@@ -8,6 +8,5 @@ Welcome to my profile! I'm a 21-year-old student based in the Netherlands, with 
 
 ---
 
-- 📫 **How to Contact Me:** **Jgroen@rhedens.nl**
 
 ---
